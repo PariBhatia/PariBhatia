@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @PariBhatia
 - 👀 I’m interested in Graphic Designing ...
-- 🌱 I’m currently learning ..Thumnail making .
+- 🌱 I’m currently learning ..Thumbnail making .
 - 💞️ I’m looking to collaborate on .youtube ..
 - 📫 How to reach me ...
 
